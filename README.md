@@ -1,1 +1,0 @@
-# Online-Rental-Property-platform
